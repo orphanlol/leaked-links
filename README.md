@@ -13,5 +13,5 @@ https://unblocked-x.com/
 https://ccm.net/downloads/tools/7249-bluestacks-5/
 https://www.typeracer.gq/
 https://ubg9.github.io/index.html
-https://dominos.buzz/play.html
+https://lps7x.csb.app/
 https://outred.github.io/
