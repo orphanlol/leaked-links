@@ -14,3 +14,10 @@ https://www.typeracer.gq/
 https://ubg9.github.io/index.html
 https://lps7x.csb.app/
 https://outred.github.io/
+https://fatgarfield777.github.io/Games.html
+https://veil-band-pixie.glitch.me/
+https://sneslover22.github.io/Mathews-Collection/games.html
+https://feetnetworks.netlify.app/
+https://mathgames67.github.io/
+https://smdgames.github.io/core-html/games.html
+https://genarcy.github.io/Pages/games.html
