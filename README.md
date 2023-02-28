@@ -20,3 +20,8 @@ https://feetnetworks.netlify.app/
 https://mathgames67.github.io/
 https://smdgames.github.io/core-html/games.html
 https://genarcy.github.io/Pages/games.html
+https://www.schooltears.ml/
+https://darkspeed.repl.co/index.html
+https://shadowgmes.github.io/
+https://www.hotcorn.ga/games/index.html
+https://newportgrizfun.netlify.app/
