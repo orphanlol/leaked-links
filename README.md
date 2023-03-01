@@ -28,3 +28,7 @@ https://newportgrizfun.netlify.app/
 https://terbiumux.net/
 https://obliged-gisele-thetatertotgod.koyeb.app/uv/service/hvtrs8%2F-wuw%2Cgmoelg.aoo%2Fue%60hr%3Fjl%3Fel%26qa%3FX%24vgd%3F0chWKGwhT%2Ffdk5rh9ChZXD1iFJdsqCr2QRAeJ
 https://dev.92spoons.com/
+https://outred.github.io/g/
+https://outredsite-outred.vercel.app/
+https://www.lonelytab.gq/g/
+https://funkymods.github.io/
