@@ -9,7 +9,6 @@ https://www.jordansmathwork.ml/gs/
 https://geometryspot.com/activities/
 https://lenardsbites.ml/g/
 https://watchseries.id/
-https://ccm.net/downloads/tools/7249-bluestacks-5/
 https://ubg9.github.io/index.html
 https://lps7x.csb.app/
 https://outred.github.io/
