@@ -36,3 +36,5 @@ https://games.unblockify.gq/
 https://zatoga.vercel.app/
 https://bidoofery.github.io/nativegames/
 https://archive.org/details/internetarcade
+https://vancouver-games.github.io/
+https://masonsunblockedgames.github.io/MasonsUnblockedGames/
