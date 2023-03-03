@@ -44,3 +44,4 @@ https://bgs.shockwave.gq/g/
 https://smallfeet.ml/g/
 https://xboxcontroller.tk/g/
 https://snes3kh0.netlify.app/projects.html
+https://ds-proxy-1.darkspeed.repl.co/
