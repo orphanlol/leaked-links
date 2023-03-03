@@ -44,3 +44,4 @@ https://28klotlucas2.github.io/Funkin-Html5
 https://bgs.shockwave.gq/g/
 https://smallfeet.ml/g/
 https://xboxcontroller.tk/g/
+https://snes3kh0.netlify.app/projects.html
