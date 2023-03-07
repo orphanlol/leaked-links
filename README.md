@@ -33,6 +33,7 @@ https://funkymods.github.io/
 https://monkey3three.github.io/unblocked88.github.io/
 https://games.unblockify.gq/
 https://zatoga.vercel.app/
+https://newportgrizfun.netlify.app/
 https://bidoofery.github.io/nativegames/
 https://archive.org/details/internetarcade
 https://vancouver-games.github.io/
