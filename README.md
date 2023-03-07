@@ -45,3 +45,9 @@ https://smallfeet.ml/g/
 https://xboxcontroller.tk/g/
 https://snes3kh0.netlify.app/projects.html
 https://ds-proxy-1.darkspeed.repl.co/
+https://a-karen-is-tricky-to-an-employee-to-understand.glitch.me/
+https://nothing-that-does-something-i-guess.glitch.me/
+https://chhssssssss.glitch.me/
+https://connor-is-a-salty-ken.glitch.me/
+https://a-ken-and-karen-are-both-mean.glitch.me/
+https://uwu-says-ur-mom.glitch.me/
