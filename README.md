@@ -54,3 +54,4 @@ https://a-ken-and-karen-are-both-mean.glitch.me/
 https://uwu-says-ur-mom.glitch.me/
 https://hmafia.org/
 https://project-scythe.vercel.app/
+https://blue-seas.glitch.me/
