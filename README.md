@@ -88,3 +88,6 @@ https://mekomancer.github.io/
 https://patrickl4321.github.io/
 https://dylanprivate.glitch.me/
 https://ripple-persistent-lifter.glitch.me/
+https://glitch.com/edit/#!/general-useful-belt
+https://mackeylol.github.io/copyofmasite/
+https://goodgames4u.github.io/home.html
