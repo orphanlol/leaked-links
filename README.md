@@ -9,6 +9,7 @@ https://geometryspot.com/activities/
 https://lenardsbites.ml/g/
 https://ubg9.github.io/index.html
 https://lps7x.csb.app/
+https://trickjoker312.github.io/unblockedgames/
 https://outred.github.io/
 https://fatgarfield777.github.io/Games.html
 https://veil-band-pixie.glitch.me/
