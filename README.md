@@ -40,10 +40,6 @@ https://vancouver-games.github.io/
 https://masonsunblockedgames.github.io/MasonsUnblockedGames/
 https://cattn.github.io/gba/romindex.html
 https://skool-world.translate.goog/?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en&_x_tr_pto=wapp
-https://28klotlucas2.github.io/Funkin-Html5
-https://bgs.shockwave.gq/g/
-https://smallfeet.ml/g/
-https://xboxcontroller.tk/g/
 https://snes3kh0.netlify.app/projects.html
 https://ds-proxy-1.darkspeed.repl.co/
 https://a-karen-is-tricky-to-an-employee-to-understand.glitch.me/
