@@ -104,3 +104,12 @@ https://omnitechnicity.github.io/neuralekzz/flash/index.html
 https://railingames.github.io/classes.html
 https://omnitechnicity.github.io/neuralekzz/flash/index.html
 https://taco-browser.netlify.app/#gsc.tab=0
+https://hawaii.cf/
+https://login.algebraxyz.com/play.html
+https://www.rateavon.je/error.php
+https://hhsgames.netlify.app/
+https://taco-browser.netlify.app/#gsc.tab=0
+https://harvard-streetview.onrender.com/play.html
+https://interstellar-vi8j.onrender.com/play.html
+https://interstellar-8m0x.onrender.com/play.html
+https://anno.villainsrule.xyz/games/3kh0
