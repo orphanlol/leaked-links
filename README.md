@@ -110,9 +110,11 @@ https://login.algebraxyz.com/play.html
 https://www.rateavon.je/error.php
 https://hhsgames.netlify.app/
 https://taco-browser.netlify.app/#gsc.tab=0
-https://harvard-streetview.onrender.com/play.html
-https://interstellar-vi8j.onrender.com/play.html
-https://interstellar-8m0x.onrender.com/play.html
 https://anno.villainsrule.xyz/games/3kh0
 https://rocleaner.xyz/
 https://russell2259.github.io/3kh0.github.io/
+https://teacher-you-forgot-the-homework.onrender.com/
+https://queserishot-in4.cyclic.app/widgetbot.html
+https://roblox-kids-are-sus.onrender.com/
+https://i-dont-have-name-ideas.onrender.com/
+https://proxies-are-very-nice.onrender.com/
