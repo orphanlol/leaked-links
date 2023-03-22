@@ -118,3 +118,12 @@ https://queserishot-in4.cyclic.app/widgetbot.html
 https://roblox-kids-are-sus.onrender.com/
 https://i-dont-have-name-ideas.onrender.com/
 https://proxies-are-very-nice.onrender.com/
+https://buzz-lightyear-dad.onrender.com/
+https://fortnite-battle-pass35.onrender.com/
+https://your-mom-postalservice.onrender.com/
+https://in-ontop-lovebub.onrender.com/
+https://abc-def-ghi-jkl-mnop-qrs-tuv-wxyz.onrender.com/
+https://ima-big-dog-yea-you-a-mouse.onrender.com/
+https://memes-should-be-meems.onrender.com/
+https://sus-amogus.onrender.com/
+https://john-cena.onrender.com/
