@@ -262,3 +262,8 @@ https://techgai.com/
 
 https://goarmy.us.to/
 
+https://wjpzp6-8080.csb.app/play
+
+https://yummyfood-tk.vercel.app/play.html
+
+https://twagner-25-onrender.onrender.com/play.html
