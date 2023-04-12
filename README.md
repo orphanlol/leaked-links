@@ -172,6 +172,9 @@ https://dylanprivate.glitch.me/
 
 https://ripple-persistent-lifter.glitch.me/
 
+https://yeetgithubdude.github.io/yeetgithubdude/
+
+
 https://glitch.com/edit/#!/general-useful-belt
 
 https://mackeylol.github.io/copyofmasite/
