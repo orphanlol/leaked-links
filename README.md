@@ -1,4 +1,4 @@
-# Realhack101-s-Unblocked-Games
+# Unblocked-Games
 my list of unblocked games
 https://tylerpalko.github.io/gamehub/
 
