@@ -2,6 +2,8 @@
 my list of unblocked games
 https://tylerpalko.github.io/gamehub/
 
+https://yeeetdude.cyclic.app/
+
 https://blue-shy-salamander.cyclic.app/
 
 https://nutsimulator.github.io/index.html
