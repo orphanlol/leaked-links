@@ -1,5 +1,5 @@
 # Unblocked-Games
-§3my list of unblocked games
+my list of unblocked games
 https://purepro4561.github.io
 
 https://notch-brass-muse.glitch.me/
