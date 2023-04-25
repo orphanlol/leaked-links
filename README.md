@@ -18,6 +18,8 @@ https://railingames.github.io/index.html
 
 https://tylerpalko.github.io/gamehub/
 
+https://suite.saltyspamz.xyz/
+
 https://yeeetdude.cyclic.app/
 
 https://blue-shy-salamander.cyclic.app/
