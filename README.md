@@ -2,6 +2,10 @@
 my list of unblocked games
 https://purepro4561.github.io
 
+https://realhack1.github.io/fatgarfield777.github.io/
+
+http://fatgarfield777.xyz/
+
 https://outred-github-io.translate.goog/?_x_tr_sl=auto&_x_tr_tl=en&_x_tr_hl=en&_x_tr_pto=wapp
 
 https://outred-repl.joemomma1234.repl.co/
