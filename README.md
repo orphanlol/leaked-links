@@ -2,6 +2,12 @@
 my list of unblocked games
 https://purepro4561.github.io
 
+https://zatoga.pages.dev/
+
+https://zatoga-classroom.netlify.app/
+
+https://zatoga.nitrojade.com/
+
 https://ug17.github.io/
 
 https://realhack1.github.io/fatgarfield777.github.io/
