@@ -2,7 +2,7 @@
 my list of unblocked games
 https://purepro4561.github.io
 
-skooltv.github.io
+https://skooltv.github.io/#/search/movie
 
 https://irunblocked.asia/
 
