@@ -2,6 +2,8 @@
 my list of unblocked games
 https://purepro4561.github.io
 
+https://clumsy-cod-clothes.cyclic.app/
+
 https://mymassive.yachts/1D39KR.mp3
 
 https://shrekis.life/U1ZM9T
