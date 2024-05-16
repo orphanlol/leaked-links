@@ -1,4 +1,3 @@
-Copy code
 javascript:(function() {
   var blooketCodes = [];
   var xhr = new XMLHttpRequest();
