@@ -1,3 +1,6 @@
+/*
+Following code does not work, Ben Stewart updated it so that webpack is useless now
+*/
 (async () => { /* This is to prevent "identifier i is already declared errors" */
     let i = document.createElement('iframe');
     document.body.append(i);
